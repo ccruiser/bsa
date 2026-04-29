@@ -1,0 +1,3 @@
+**Prompt**
+
+Can you generate a cub scout camping planning event template with a communication target to adults and leaders of a pack? This should include important points of contact for emergencies, where the closest hospital is located, and park information. This event will begin on Friday night and conclude Sunday morning. We will have a group/pack campfire starting at 4pm on Saturday where each den will present a skit or lead the group in a song. We will also be planning each meal within each Den and each Den should prepare their meal schedules and plan accordingly. Also we will be camping at Stephen F Austin  Texas State Park and will need cub scout activity suggestions for Saturday.
